@@ -13,5 +13,5 @@ Menjadi developer yang bermanfaat dan berkontribusi untuk masyarakat melalui tek
 
 ## 🌐 Hubungi Saya
 - 📧 Email: maulanabilatunnajjah@gmail.com
-- 🚀 Media Sosial: Tiktok: @yk_billa
+- 🚀 Media Sosial: tiktok.com/@yk_billa
 - 💻 GitHub: [https://github.com/Nabila2610](https://github.com/Nabila2610)
